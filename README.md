@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tech7514
-- 👀 I’m interested in ...The Out-Doors
+- 👀 I’m interested in ...The Great outdoors
 - 🌱 I’m currently learning ...Data Science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...tech7514@gmail.com
